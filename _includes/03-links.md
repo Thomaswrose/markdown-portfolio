@@ -1,1 +1,1 @@
-[linkedin](https://www.linkedin.com/in/thomaswrose/)
+[linkedin](https://www.linkedin.com/in/thomaswrose)
